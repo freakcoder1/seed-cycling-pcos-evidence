@@ -1,4 +1,4 @@
-# Parasite SEO Article 8 â€” Keyword: seed cycling PCOS evidence flax pumpkin sesame sunflower
+# Parasite SEO Article 8 "” Keyword: seed cycling PCOS evidence flax pumpkin sesame sunflower
 
 ## H1
 Seed Cycling for PCOS: What the Evidence Actually Says
@@ -7,7 +7,7 @@ Seed Cycling for PCOS: What the Evidence Actually Says
 Seed cycling claims to balance hormones using flax, pumpkin, sesame, and sunflower seeds. What does the research say about seed cycling for PCOS, and should you try it?
 
 ## Quick Answer
-Seed cycling is a dietary strategy that rotates four seeds through the menstrual cycle. A 2025 systematic review found it may improve menstrual regularity and hormonal markers in women with PCOS â€” but the evidence is based on small studies, and there are no good trials showing it balances hormones on its own.
+Seed cycling is a dietary strategy that rotates four seeds through the menstrual cycle. A 2025 systematic review found it may improve menstrual regularity and hormonal markers in women with PCOS "” but the evidence is based on small studies, and there are no good trials showing it balances hormones on its own.
 
 ## Body
 
@@ -36,7 +36,7 @@ A 2026 review in PMC on functional foods for PCOS found that pumpkin seeds, flax
 - There is no evidence seed cycling balances hormones on its own
 - It is not a treatment for PCOS, irregular periods, or infertility
 - It does not replace medical care or prescribed treatments
-- The seeds themselves are nutritious â€” eat them because they are good food, not as a treatment
+- The seeds themselves are nutritious "” eat them because they are good food, not as a treatment
 
 ### How to Practice Seed Cycling
 - **Days 1-14:** 1 tablespoon ground flaxseed + 1 tablespoon pumpkin seeds
@@ -45,7 +45,7 @@ A 2026 review in PMC on functional foods for PCOS found that pumpkin seeds, flax
 - One to two tablespoons of mixed seeds a day is a sensible amount
 
 ### Related Reading
-For a detailed, evidence-based guide on seed cycling â€” including what research says and how to enjoy seeds without the hype â€” see [Poshita's seed cycling guide](https://poshita.org/periods-pcos/seed-cycling/).
+For a detailed, evidence-based guide on seed cycling "” including what research says and how to enjoy seeds without the hype "” see [Poshita's seed cycling guide](https://poshita.org/periods-pcos/seed-cycling/).
 
 ---
 *Medically reviewed by a qualified health professional. This article is for informational purposes and is not a substitute for medical advice.*
